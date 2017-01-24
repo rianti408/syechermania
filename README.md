@@ -1,2 +1,0 @@
-# syechermania
-Syecerh Mania Purwokerto
